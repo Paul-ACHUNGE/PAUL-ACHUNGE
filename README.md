@@ -11,4 +11,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me [achungejeanpaul@gmail.com](mailto:achungejeanpaul@gmail.com)
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i'm funny
-- Paul: No matter the obstacles, i will find a way, and if there isn't one, i will create on
+- Paul: No matter the obstacles, i will find a way, and if there isn't one, i will create one
